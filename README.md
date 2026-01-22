@@ -3,7 +3,7 @@
 #### Sobre mim:
 - 📱 Atuo como Desenvolvedora Android.
 - 😊 Pronomes: Ela/Dela.
-- 📚 Atualmente trabalhando no contexto da Home.
+- 📚 Atualmente trabalhando no contexto de PDP.
 - 🤓 Pode encontrar meus contatos nos links de perfil.
 
  #### Se conecte comigo 👇
